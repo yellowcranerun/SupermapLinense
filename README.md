@@ -1,4 +1,4 @@
-# SuperMap Software Versions and Cracked Releases 正式授权破解版
+# SuperMap Software Versions and Cracked Releases 超图正式授权破解版
 
 ## SuperMap iServer 10i 10.2.1
 **Description:**  SuperMap iServer 10i version 10.2.1
